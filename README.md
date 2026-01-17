@@ -2,7 +2,7 @@
 
 Before the journey begins,  
 prove you can leave a mark.
-
+.
 Change **anything** in this scroll.  
 Even a single dot is enough.
 
